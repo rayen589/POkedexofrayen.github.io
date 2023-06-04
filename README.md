@@ -1,1 +1,1 @@
-# POkedexofrayen.github.io
+# Pokedexofrayen.github.io
